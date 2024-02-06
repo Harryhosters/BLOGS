@@ -1,1 +1,1 @@
-# COMPANY
+# BLOGS
